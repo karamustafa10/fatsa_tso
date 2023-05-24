@@ -7,15 +7,15 @@ Site tanıtım videosu için :
 
 ## *** SİTE GÖRÜNTÜLERİ ***
 
-[https://i.hizliresim.com/n8dsi3o.jpg](https://i.hizliresim.com/n8dsi3o.jpg)
+![](https://i.hizliresim.com/n8dsi3o.jpg)
 
-[https://i.hizliresim.com/j9uhsp6.jpg](https://i.hizliresim.com/j9uhsp6.jpg)
+![](https://i.hizliresim.com/j9uhsp6.jpg)
 
-[https://i.hizliresim.com/2oa5byi.jpg](https://i.hizliresim.com/2oa5byi.jpg)
+![](https://i.hizliresim.com/2oa5byi.jpg)
 
-[https://i.hizliresim.com/98ywy66.jpg](https://i.hizliresim.com/98ywy66.jpg)
+![](https://i.hizliresim.com/98ywy66.jpg)
 
-[https://i.hizliresim.com/da3a29d.jpg](https://i.hizliresim.com/da3a29d.jpg)
+![](https://i.hizliresim.com/da3a29d.jpg)
 
-[https://i.hizliresim.com/bhmmfu2.jpg](https://i.hizliresim.com/bhmmfu2.jpg)
+![](https://i.hizliresim.com/bhmmfu2.jpg)
 
