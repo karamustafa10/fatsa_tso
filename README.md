@@ -11,6 +11,8 @@ Site tanıtım videosu için :
 
 ![](https://i.hizliresim.com/j9uhsp6.jpg)
 
+![](https://i.hizliresim.com/xcho7v3.jpg)
+
 ![](https://i.hizliresim.com/2oa5byi.jpg)
 
 ![](https://i.hizliresim.com/98ywy66.jpg)
