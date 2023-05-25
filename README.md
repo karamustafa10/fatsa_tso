@@ -3,7 +3,7 @@ HTML ve PHP teknolojileri kullanılarak bir site oluşturuldu. Site yapısı gen
 
 Siteye direkt ulaşmak için : [https://fatsatso.000webhostapp.com](https://fatsatso.000webhostapp.com)
 
-Site tanıtım videosu için : 
+Site tanıtım videosu için : [https://youtu.be/HrvKARPpwGI](https://youtu.be/HrvKARPpwGI)
 
 ## *** SİTE GÖRÜNTÜLERİ ***
 
